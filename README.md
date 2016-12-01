@@ -1,0 +1,2 @@
+# FuckADRule
+JUST FOR MYSELF
